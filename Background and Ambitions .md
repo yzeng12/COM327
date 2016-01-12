@@ -1,5 +1,13 @@
 # COM327
 
 Yixin Zeng
-Working
+
+Background and Ambitions project
+
+ 
+
+
+
+
+
 
